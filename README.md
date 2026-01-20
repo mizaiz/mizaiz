@@ -17,3 +17,5 @@ im nerdy enough to understand. smh. I WOULDNT LET YOU DO THAT BTW - ellie
 ID ALSO COMPLIMENT UR NEW HAIR BC I THINK IT LOOKS GREAT EVEN BUT YOU ARENT NERDY ENOUGH FOR THAT -NID
 
 id walk into a room full of people i havent seen for nearly a year and only say your name but ur not nerdy enough to get it sigh,, - ellie
+
+WELL I WOULD PUT MY HAND ON THE BACK OF YOUR HEAD AFTER U TACKLED ME ON THE GROUND WITH A HUG BUT YOU ARENT NERDY ENOUGH FOR THAT- NID
