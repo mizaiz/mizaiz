@@ -27,3 +27,5 @@ WELL ID SACRIFICE MY BIKE THAT I NAMED AFTER US TO SAVE YOU FROM YOUR EVIL EX BU
 i think you're an extraordinary person but you arent nerdy enough to understand - ellie
 
 i think i love you but you arent nerdy enough to understand.. -nid
+
+i love you too and i AM nerdy enough to understand,, - ellie
