@@ -13,3 +13,5 @@
 id lose my arm by protecting you from your evil ex but you arent nerdy enough.. -nid
 
 im nerdy enough to understand. smh. I WOULDNT LET YOU DO THAT BTW - ellie
+
+ID ALSO COMPLIMENT UR NEW HAIR BC I THINK IT LOOKS GREAT EVEN BUT YOU ARENT NERDY ENOUGH FOR THAT -NID
