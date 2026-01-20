@@ -23,3 +23,5 @@ WELL I WOULD PUT MY HAND ON THE BACK OF YOUR HEAD AFTER U TACKLED ME ON THE GROU
 id jump after you if you fell into possible death not knowing if i'd be dead too but you're not nerdy enough for that i guess - ellie
 
 WELL ID SACRIFICE MY BIKE THAT I NAMED AFTER US TO SAVE YOU FROM YOUR EVIL EX BUT YOU ARENT NERDY ENOUGH FOR THAT- NID
+
+i think you're an extraordinary person but you arent nerdy enough to understand - ellie
