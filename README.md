@@ -19,3 +19,5 @@ ID ALSO COMPLIMENT UR NEW HAIR BC I THINK IT LOOKS GREAT EVEN BUT YOU ARENT NERD
 id walk into a room full of people i havent seen for nearly a year and only say your name but ur not nerdy enough to get it sigh,, - ellie
 
 WELL I WOULD PUT MY HAND ON THE BACK OF YOUR HEAD AFTER U TACKLED ME ON THE GROUND WITH A HUG BUT YOU ARENT NERDY ENOUGH FOR THAT- NID
+
+id jump after you if you fell into possible death not knowing if i'd be dead too but you're not nerdy enough for that i guess - ellie
