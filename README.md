@@ -2,6 +2,8 @@ wow heh guys shes WOWWW... giys guys im like giggling my bwautiful girlfriend he
 
 LOOK AT YOURSELF?????? - ellie
 
+IM LOOKING DIRECTLY AT YOU AND AJ BLUSHINF -NID
+
 
 &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=1&color=5E36A8&multiline=true&width=435&lines=%2C%2C+the+goal+of+a+savior;is+not+to+be+lionized.+%22)](https://git.io/typing-svg)
 <p align="center">
