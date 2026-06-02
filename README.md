@@ -1,13 +1,11 @@
-&emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=1&color=5E36A8&multiline=true&width=435&lines=%2C%2C+the+goal+of+a+savior;is+not+to+be+lionized.+%22)](https://git.io/typing-svg)
 <p align="center">
-  <img width="220" height="255" src="https://files.catbox.moe/mcop21.png">
+  <img width="320" height="100" src="https://spotify-github-profile.kittinanx.com/api/view?uid=cc7ruoqolcp0f2nf5f1txlivi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color_cover=true&bar_color=53b14f)](https://github.com/kittinan/spotify-github-profile)](https://spotify-github-profile.kittinanx.com/api/view?uid=cc7ruoqolcp0f2nf5f1txlivi&redirect=true)">
 </p>
 
-
-&emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [<img src="https://files.catbox.moe/1o3vob.png">](https://rentry.co/mizaiz) [<img src="https://files.catbox.moe/amheaj.png">](https://cheriefraise.straw.page) [<img src="https://files.catbox.moe/i8c4di.png">](https://pronouns.cc/@cheriecrush)
+&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [![Typing SVG](https://readme-typing-svg.demolab.com?font=Passion+One&pause=100&color=5D5D5D&center=true&vCenter=true&multiline=true&width=450&lines=%E2%9D%9D+you're+out+of+touch.+i'm+out+of+time.+%E2%9D%9E)](https://git.io/typing-svg)
 
 <p align="center">
-  <img width="320" height="70" src="https://spotify-github-profile.kittinanx.com/api/view?uid=cc7ruoqolcp0f2nf5f1txlivi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color_cover=true&bar_color=53b14f)](https://github.com/kittinan/spotify-github-profile)](https://spotify-github-profile.kittinanx.com/api/view?uid=cc7ruoqolcp0f2nf5f1txlivi&redirect=true)">
+  <img width="600" height="265" src="https://files.catbox.moe/00o3re.jpg">
 </p>
 
-note; extremely inactive but im alive trust
+&emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [rentry](https://rentry.co/mizaiz) &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [pronouns](https://pronouns.cc/@cheriecrush) &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [strawpage](https://mizai.straw.page)
