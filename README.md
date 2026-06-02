@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <img width="600" height="265" src="https://files.catbox.moe/rh1jfe.jpg">
+  <img width="600" height="265" src="https://i.pinimg.com/736x/00/42/e8/0042e8c66e7d84a5b2a115a4a81de1e2.jpg">
 </p>
 
 &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [rentry](https://rentry.co/mizaiz) &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [pronouns](https://pronouns.cc/@cheriecrush) &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [strawpage](https://mizai.straw.page)
